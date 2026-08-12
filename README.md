@@ -2,4 +2,4 @@
 
 ## Henrique Mayor, Leonardo Freitas and Thiago Penha
 
-### Topic : Odyssey reviews on X (former Twitter)
+### Topic : Odyssey reviews on TBD
